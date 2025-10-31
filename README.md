@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **MERN**
 
-- 📫 How to reach me **bishnupriyabadajena44@gamil.com**
+- 📫 How to reach me **bishnupriyabadajena24@gamil.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
